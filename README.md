@@ -4,7 +4,7 @@
 <p align="center">
     <a href="http://Wa.me/62859194145686">
         <img
-            src="https://readme-typing-svg.herokuapp.com?size=15&width=280&lines=Tetap+Putus+Asa+Jangan+Pernah+Semangat+🔥"
+            src="https://readme-typing-svg.herokuapp.com?size=15&width=280&lines=Tetap+Putus+Asa+By+Al+Affandi+🔥"
             alt="AzzBotz"
         />
     </a>
