@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTGJDcHPHsij7anNGZCHUw3xdzpsjSOWm17d_U7rFrXxpoxESk1tEbwJ_Zk&s=10" alt="LEXXY BOT" width="200"/>
+<img src="https://media.tenor.com/images/e15cb1453a09e25bab41116d930329bf/tenor.gif" alt="LEXXY BOT" width="200"/>
 
 <p align="center">
     <a href="http://Wa.me/62859194145686">
