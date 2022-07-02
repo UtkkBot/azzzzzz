@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://youtube.com/watch?v=SOksFt_inU8" alt="AzzBotz" width="700"/>
+<img src="https://media.tenor.com/images/e15cb1453a09e25bab41116d930329bf/tenor.gif" alt="AzzBotz" width="700"/>
 
 <p align="center">
     <a href="http://Wa.me/62859194145686">
